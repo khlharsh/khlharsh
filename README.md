@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+🚀 **Currently active on a different GitHub account.** Feel free to reach out to me [here](https://github.com/harsh-devx) for more details.
+
 
 
 <!--
